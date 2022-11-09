@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fuerstfelix
 - 👀 I’m interested in nothing at all
 - 🌱 I’m currently learning how to be interested in something
-- ♨️ I’m in thr process of becoming hot right now
+- ♨️ I’m in the process of becoming hot right now
 - 🍗 I’m at like one and a half hunger bars in real life
 
 <!---
